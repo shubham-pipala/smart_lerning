@@ -1,1 +1,1 @@
-# smart_lerning
+# smart_lerningne
